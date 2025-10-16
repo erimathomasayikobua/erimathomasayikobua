@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning cyber security
 - 💞️ I’m looking to collaborate on gaming software
 - 📫 How to reach me here
-- 😄 Pronouns: ...
+- 😄 Pronouns: ...say less 
 - ⚡ Fun fact: ...
 
 <!---
